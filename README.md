@@ -1,1 +1,1 @@
-# Controlling-trapping-distance-through-magnetic-permeabilites-in-the-Casimir-Liftshitz-interaction
+# Controlling-trapping-distance-through-magnetic-permeabilities-in-the-Casimir-Liftshitz-interaction
